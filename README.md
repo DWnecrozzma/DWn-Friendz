@@ -23,3 +23,5 @@ k0letzx ○ my fellow Indonesian hetalian!!11! I really missed talking to you tb
 N1hirumu 夜 • yes we get it YOU LIKE SHIMON¿? AND MAKE 100+ HEADCANNONS OF THE CHARACTERS IN THE FUNNI MUSIC VIDS okay but uhmmmm I also like shimon¿? and bokuyona too I'm glad you exist or else I'm gonna be alone 
 
 viro • holy moly you still remember me????? I guess I made such a big impact in your life that you always desperately trying to contact me, ur very cool always!!!!11!
+## other stuffz
+check out thiz very kool <a href="https://triplebakas.straw.page/">strawpage</a> that my friend kim and kiyo made :333 i promise that this will never be deleted from this readme even if we separated!!1!
