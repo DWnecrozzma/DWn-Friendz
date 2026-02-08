@@ -24,4 +24,9 @@ N1hirumu 夜 • yes we get it YOU LIKE SHIMON¿? AND MAKE 100+ HEADCANNONS OF T
 
 viro • holy moly you still remember me????? I guess I made such a big impact in your life that you always desperately trying to contact me, ur very cool always!!!!11!
 ## other stuffz
-check out thiz very kool <a href="https://triplebakas.straw.page/">strawpage</a> that my friend kim and kiyo made :333 i promise that this will never be deleted from this readme even if we separated!!1!
+<div align="center" >
+check out thiz very kool <a href="https://triplebakas.straw.page/">strawpage</a> that my friend kim and kiyo made :333 i promise that this will never be deleted from this readme even if we
+separated!!1!<br> □ ■ ▪︎ --- ▪︎ ■ □
+ <br ><img width="1536" height="2048" alt="1000010790" src="https://github.com/user-attachments/assets/33982305-d838-477a-8cac-05a56a150107" /><br>
+ gift for kiyo!!!
+</div>
