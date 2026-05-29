@@ -3,7 +3,7 @@ here are some very very very kool people I met!!11!
 ## Pony town friendzzz !!!!
 @mafuiisato / Kim ○ Ily but please, respectfully stop being freaky all the time, it gets old really quickly. Other than that ur a really cool friend of mine ^^
 
-@Our16bitwars / kiyo ○ newer friend i met !!11! we both can talk hours about Rosa too probably and im so happy to be in your life at some point :DDD
+@Our16bitwars / sas ○ newer friend i met !!11! we both can talk hours about Rosa too probably and im so happy to be in your life at some point :DDD
 
 @L0ST-UMBRELLA / mafu ○ I still remember that I met you with kim!!11! honestly i don't have much stuff to talk about you because we don't interact that much, honestly wished we were still together too yk alongside nat, y'all r fun to hang out, but considering the recent stuff that happened to kiyo I don't think we can be together anymore:(
 
