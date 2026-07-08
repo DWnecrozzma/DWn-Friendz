@@ -5,11 +5,15 @@ here are some very very very kool people I met!!11!
 
 @DoctorFunkbeat / sas ○ newer friend i met !!11! we both can talk hours about Rosa too probably and im so happy to be in your life at some point :DDD
 
+new note: Did i do something wrong? :(
+
 @L0ST-UMBRELLA / mafu ○ I still remember that I met you with kim!!11! honestly i don't have much stuff to talk about you because we don't interact that much, honestly wished we were still together too yk alongside nat, y'all r fun to hang out, but considering the recent stuff that happened to kiyo I don't think we can be together anymore:(
 
 @KAlTO-SHION / nat ○ hehe we're both really into kaito it seems like :DDD ur veri kool even tho I don't interact with u much
 
 @rottenmaiden / Rosa ○ we are now back together :D im happi that we can talk with eachothers again even tho yuo joinnrarely
+
+new note: Did i do something wrong? :(
 
 @strawbrrycream-c00kie / essvee ○ we don't talk with each other anymore but yes, I STILL REMEMBER Y0U!!11! you're basically one of my only online CaW friend, the others kinda dissappeared tbh
 
