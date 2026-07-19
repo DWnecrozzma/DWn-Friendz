@@ -5,16 +5,6 @@ here are some very very very kool people I met!!11!
 
 @rottenmaiden / Rosa ○ we are now back together :D im happi that we can talk with eachothers again even tho yuo joinnrarely
 
-new note: Did i do something wrong? :(
-
-@DoctorFunkbeat / sas ○ newer friend i met !!11! we both can talk hours about Rosa too probably and im so happy to be in your life at some point :DDD
-
-new note: Did i do something wrong? :(
-
-@L0ST-UMBRELLA / mafu ○ I still remember that I met you with kim!!11! honestly i don't have much stuff to talk about you because we don't interact that much, honestly wished we were still together too yk alongside nat, y'all r fun to hang out, but considering the recent stuff that happened to kiyo I don't think we can be together anymore:(
-
-@KAlTO-SHION / nat ○ hehe we're both really into kaito it seems like :DDD ur veri kool even tho I don't interact with u much
-
 @strawbrrycream-c00kie / essvee ○ we don't talk with each other anymore but yes, I STILL REMEMBER Y0U!!11! you're basically one of my only online CaW friend, the others kinda dissappeared tbh
 
 Dianxia ○ you're my first friend EVER in pt, it's been so long since we talked but I remember you whispered my hetalia cos and I desperately tried to find you because I was still so new to the game!!11!
@@ -23,14 +13,22 @@ KaGekao_Q ○ we randomly met on a random day, amazjnf, anyways best of luck wit
 
 k0letzx ○ my fellow Indonesian hetalian!!11! I really missed talking to you tbh we had so much fun talking about THE AWESOME PRUSSIA!!!!1111!! and life
 
+something to say for the departed (from my circle)
+---
+@DoctorFunkbeat / huang ○ hi vro, again I'm still really really really sorry if i did anything wrong, you can say garbage about bokuyona as much as you want, but I'll still support you even from far away, best of luck! and hopefully, you can be someone more cooler than us!
+
+@L0ST-UMBRELLA / mafu ○ I still remember that I met you with kim!!11! honestly i don't have much stuff to talk about you because we don't interact that much, honestly wished we were still together too yk alongside nat, y'all r fun to hang out, but considering the recent stuff that happened to huang I don't think we can be together anymore:( but that's okay, have a great life!
+
+@KAlTO-SHION / nat ○ hehe we're both really into kaito it seems like :DDD ur veri kool even tho I don't interact with u much, so uh ye 
+
 ## outside of pony town friends!!!111!
 N1hirumu 夜 • yes we get it YOU LIKE SHIMON¿? AND MAKE 100+ HEADCANNONS OF THE CHARACTERS IN THE FUNNI MUSIC VIDS okay but uhmmmm I also like shimon¿? and bokuyona too I'm glad you exist or else I'm gonna be alone 
 
 viro • holy moly you still remember me????? I guess I made such a big impact in your life that you always desperately trying to contact me, ur very cool always!!!!11!
 ## other stuffz
 <div align="center" >
-check out thiz very kool <a href="https://triplebakas.straw.page/">strawpage</a> that my friend kim and kiyo made :333 i promise that this will never be deleted from this readme even if we
+check out thiz very kool <a href="https://triplebakas.straw.page/">strawpage</a> that my friend kim and huang made :333 i promise that this will never be deleted from this readme even if we
 separated!!1!<br> □ ■ ▪︎ --- ▪︎ ■ □
  <br ><img width="1536" height="2048" alt="1000010790" src="https://github.com/user-attachments/assets/33982305-d838-477a-8cac-05a56a150107" /><br>
- gift for kiyo!!!
+ gift for Huang!!!
 </div>
